@@ -1,1 +1,0 @@
-# Basurero_Inteligente
